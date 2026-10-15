@@ -1,1 +1,0 @@
-# shobdo-chaka-privacy
